@@ -5,3 +5,5 @@ It Kariera 2020
 3. Kristian
 4.Kristiana
 6.Eliz!!!
+--------------------------
+now dokument
